@@ -33,6 +33,10 @@ https://youtu.be/FhMUkCNIvH8?si=WvvTLM1HMzt6iKlq**
 ![image](https://github.com/GuerreroA128/u3-a3/assets/143743819/1d19fff5-52f8-459d-9c6d-e982e16b2a18)
 ![image](https://github.com/GuerreroA128/u3-a3/assets/143743819/d33d9309-257b-472b-8cfe-468351fb4d49)
 ![image](https://github.com/GuerreroA128/u3-a3/assets/143743819/d14cb0d9-13f4-4526-aabd-30da560d2e21)
+## Base De Datos
+![image](https://github.com/GuerreroA128/u3-a3/assets/143743819/01562512-6a69-41c3-a914-5f4390a326f1)
+![image](https://github.com/GuerreroA128/u3-a3/assets/143743819/b9759aec-bab1-4fce-9fc4-5dd17cb337b4)
+
 
 
 
